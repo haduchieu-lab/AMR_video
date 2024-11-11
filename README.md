@@ -1,2 +1,5 @@
 # AMR_video
- ![a](6407523562136943906 (online-video-cutter.com)(1).mp4)
+
+
+https://github.com/user-attachments/assets/b9fa56de-c509-47f9-90bb-cd10ca5a09ed
+
